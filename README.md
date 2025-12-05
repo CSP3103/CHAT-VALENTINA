@@ -7,3 +7,5 @@ Ya me di cuenta como es donde dice pull request vas a oprimir donde hay algo com
 Y estamos conectados en este archivo trata de cambiar cosas en mi readme de mi repo osea el dev/final pero el mio porfa
 
 HAZ LO QUE HICISTE PERO EN MI REPO - YA PUEDES MODIFICAR ESTE README CON LIBERTAD ASI QUE ESCRIBEEEEEEEEEEE
+
+Ya nos unimos sube los cambios que hayas hecho para ver porfaaaaaaa
